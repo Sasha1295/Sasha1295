@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sasha1295
+- 👋 Hi, I’m Sasha1295
 - 👀 I’m interested in Webdesign
 - 🌱 I’m currently learning Webdesign
 - 📫 How to reach me 
